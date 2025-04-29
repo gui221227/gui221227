@@ -2,7 +2,7 @@
 
 🎓 Estudante de Ciência da Computação | 💻 Técnico em Desenvolvimento de Sistemas  
 📍 Brasil  
-📧 guilhermevoltolin@gmail.com  
+📧 guilherme227.capodeferro@gmail.com 
 
 ---
 
